@@ -1,16 +1,17 @@
-## Hi there 👋
+Hi, I'm Sushree 👋
+Strategic Account Manager | Customer Success | Marketplace Growth
 
-<!--
-**SushreeSwarnaprava/SushreeSwarnaprava** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+📍 Bangalore, India
 
-Here are some ideas to get you started:
+About Me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+8+ years in Strategic Account Management
+Ex Amazon Marketplace
+Ex Amazon Food
+Ex Zomato
+₹3 Cr+ Monthly Portfolio
+40 Strategic Brands
+30% YoY Growth
+GTM Launch Experience
+Customer Success Enthusiast
+Exploring AI for Customer Success
