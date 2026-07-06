@@ -15,3 +15,20 @@ Ex Zomato
 GTM Launch Experience
 Customer Success Enthusiast
 Exploring AI for Customer Success
+
+What I Do
+✔ Customer Success
+
+✔ Strategic Account Management
+
+✔ Marketplace Growth
+
+✔ GTM Launches
+
+✔ Business Reviews
+
+✔ Customer Onboarding
+
+✔ Merchant Success
+
+✔ Cross-functional Leadership
